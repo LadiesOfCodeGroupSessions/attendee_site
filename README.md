@@ -1,0 +1,1 @@
+Welcome to Group Coding Sessions - a Tech Women Risers initiative 
